@@ -1,16 +1,13 @@
-## Hi there 👋
+![Group Photo of Choir members](https://trailharmonychoir.wordpress.com/wp-content/uploads/2023/06/2f2d1-cropped-harmonybannerphoto_cr.png)
 
-<!--
-**Trail-Harmony/Trail-Harmony** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## **_Welcome to our Trail Harmony Choir!_**
 
-Here are some ideas to get you started:
+The Trail Harmony Choir is a non-auditioned mixed community choir in Trail, BC. Our repertoire covers sacred music, Broadway, jazz and contemporary, both with and without accompaniment. We practice weekly from September through April and perform at local events and our annual Spring Concert. 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+The startup for the Fall season will be a Wednesday in September at Trail United Church @ 7:00pm.
+
+ We would love to have you join us! If you are interested, contact our Board President Elizabeth Stephens _via_ phone, text, email:
+
+*   250-512-8021
+    
+*   [rosslandliz@gmail.com](mailto:rosslandliz@gmail.com)
