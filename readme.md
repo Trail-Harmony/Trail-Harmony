@@ -4,7 +4,7 @@
 
 The Trail Harmony Choir is a non-auditioned mixed community choir in Trail, BC. Our repertoire covers sacred music, Broadway, jazz and contemporary, both with and without accompaniment. We practice weekly from September through April and perform at local events and our annual Spring Concert. 
 
-The startup for the Fall season will be a Wednesday in September at Trail United Church @ 7:00pm.
+The startup for the Fall season will be 7:00pm on Wednesday September 9th at Trail United Church.
 
  We would love to have you join us! If you are interested, contact our Board President Elizabeth Stephens _via_ phone, text, email:
 
