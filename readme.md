@@ -6,6 +6,8 @@ The Trail Harmony Choir is a non-auditioned mixed community choir in Trail, BC. 
 
 The startup for the Fall season will be 7:00pm on Wednesday September 9th at Trail United Church.
 
+Cost for the year is $250, and $125 for students. Accommodations can be made on a case-by-case basis.
+
  We would love to have you join us! If you are interested, contact our Board President Elizabeth Stephens _via_ phone, text, email:
 
 *   250-512-8021
