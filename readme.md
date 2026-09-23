@@ -1,4 +1,4 @@
-![Group Photo of Choir members](https://github.com/Trail-Harmony/Trail-Harmony/blob/0dbee90c13024144238bbdae159d64e7cd0a2e27/images/Choir%20group%20photo.jpeg)
+![Group Photo of Choir members](https://www.trailharmonychoir.ca/images/Choir%20group%20photo.jpeg)
 
 ## **_Welcome to our Trail Harmony Choir!_**
 
